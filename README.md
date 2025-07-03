@@ -1,4 +1,4 @@
-# The Rarity Model
+# The Rarity Model Philosophy 
 
 **Founder: Michael Austin Collins**  
 **Philosophy Type: Identity-Based, Self-Actualization-Oriented**
