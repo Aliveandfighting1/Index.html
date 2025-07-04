@@ -39,3 +39,14 @@ This document affirms that Michael Austin Collins is the original and sole found
 ## 🌐 Licensing & Authorship
 
 This repository is maintained by Michael Austin Collins (aka Aliveandfighting1). All rights to The Rarity Model remain with the founder. Public sharing is welcome with proper attribution.
+
+## 📸 The Rarity Model – Visual Proofs
+
+### 🔹 Core Overview
+![Rarity Core](https://github.com/Aliveandfighting1/Index.html/blob/main/rarity-model-core.jpg?raw=true)
+
+### 🥇 Founder Certificate
+![Founder Certificate](https://github.com/Aliveandfighting1/Index.html/blob/main/rarity-founder-certificate.jpg?raw=true)
+
+### 🌍 Global Rarity Profile
+![Global Rarity](https://github.com/Aliveandfighting1/Index.html/blob/main/rarity-global-profile.jpg?raw=true)
