@@ -6,9 +6,7 @@
 
 ## 📜 About The Rarity Model
 
-**The Rarity Model** is a life path and philosophical identity model created by Michael Austin Collins. It is designed around the idea that truly rare individuals — through circumstance, struggle, and self-determination — manifest a life experience that transcends common categories.
-
-> **"1 in many millions"** – The foundational seal and motto of The Rarity Model.
+**The Rarity Model** is a life path and philosophical identity model created by Michael Austin Collins. It is designed to guide individuals who strive to live with uncommon depth, discipline, and legacy. It is a model for anyone willing to rise through struggle, discipline, and purpose — not born rare, but becoming rare.
 
 ---
 
@@ -27,7 +25,6 @@ This document affirms that **Michael Austin Collins** is the original and sole f
 - Michael Austin Collins  
 - Philosophy of Identity  
 - Rare Life Path  
-- One in a Million Philosophy  
 - Personal Rarity System  
 - Modern Philosophers  
 - Uncommon Self-Actualization  
@@ -37,12 +34,11 @@ This document affirms that **Michael Austin Collins** is the original and sole f
 
 ## 🌐 Licensing & Authorship
 
-This repository is maintained by **Michael Austin Collins** (aka Aliveandfighting1). All rights to The Rarity Model remain with the founder. Public sharing is welcome **with proper attribution.**
+This repository is maintained by **Michael Austin Collins** (aka Aliveandfighting1). All rights to The Rarity Model remain with the founder. Public sharing is welcome **with proper attribution**.
 
 ---
 
-# ORIGINALITY PROOF: The Rarity Model Philosophy
-
+# ORIGINALITY PROOF: The Rarity Model Philosophy  
 **Author: Col. Michael Austin Collins-J.M.**  
 **Founder of The Rarity Model Philosophy**
 
@@ -50,7 +46,7 @@ This repository is maintained by **Michael Austin Collins** (aka Aliveandfightin
 
 ## 📜 Introduction
 
-**The Rarity Model** is a life philosophy developed not in academia or theory, but through a life forged in hardship—childhood poverty, unstable environments, militaristic training, grassroots leadership, mental health recovery, and executive protection. It is not a rehash of ancient wisdom nor a new productivity trend. It is a complete, actionable **methodology** for living with uncommon skill, character, and legacy—built from the ground up.
+The Rarity Model is a life philosophy shaped by real hardship—childhood poverty, unstable environments, militaristic training, grassroots leadership, mental health recovery, and high-risk protective service work—and refined by personal discipline and academic pursuit. It bridges lived experience and formal insight into a complete, actionable **methodology** for living with uncommon skill, character, and legacy.
 
 To clarify its originality and prevent false comparisons, this document provides a clear, honest contrast between The Rarity Model and the most frequently referenced philosophical or psychological systems.
 
