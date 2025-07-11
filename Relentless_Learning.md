@@ -1,5 +1,5 @@
 # Becoming Rare Through Relentless Learning and Skill Diversification
-### *Certify Your Existence*
+### *Chapter Title: Certify Your Existence*
 
 To live by **The Rarity Model** is to **refuse common limits**. To **be rare** means you don't simply chase titles that impress others or certifications that pay the most. You **pursue mastery as a way of life**—as a form of **rebellion against mediocrity** and **a testament to your aliveness**.
 
@@ -29,12 +29,7 @@ This isn’t about being better than others. It’s about **being immune to coll
 
 ## 🛠️ RARE CERTIFICATION MANIFESTO
 
-- If it builds you, take it.  
-- If it’s free and online, collect it.  
-- If it costs and you’re ready, invest.  
-- If it seems “pointless” to others, that’s your green light.  
-- The more well-rounded you are, the less dependent you’ll be.  
-- The more unexpected your skills, the rarer your path.
+![Rare Certification Manifesto](./RARE_CERTIFICATION_MANIFESTO.png)
 
 ---
 
