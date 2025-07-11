@@ -1,4 +1,4 @@
-# 🧠 Intelligence Symbolism in the Rarity Model
+# 🧠 Intelligence within the Rarity Model
 
 The Rarity Model distinguishes **two core forms of intelligence**:
 
@@ -21,13 +21,13 @@ The rare do not react blindly — they move with direction, aware of both terrai
 
 ---
 
-## Offense/Defense of Intelligence
+## As sword & shield. 
 
 - 🗡️ **Social Intelligence** – the *outward blade*, honed for group dynamics, perception control, and relational navigation.
 - 🛡️ **Emotional Intelligence** – the *inner shield*, forged through CBT, reflection, and disciplined thought correction.
 
-These are not ornamental traits. They are **weapons of clarity** — not for domination, but for **precision, restraint, and relational mastery**.
+These are not ornamental traits. They are **weapons of clarity** — not for domination, but for **precision, restraint, and relational mastery and defense against a chaotic world**.
 
 ---
 
-🧬 *To master both is to embody the rarest kind of human: the one who leads both inside and out.*
+🧬 *To master both is to embody one of the rarest kinds of beings. 
