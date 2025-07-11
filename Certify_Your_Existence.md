@@ -29,7 +29,7 @@ This isn’t about being better than others. It’s about **being immune to coll
 
 ## 🛠️ RARE CERTIFICATION MANIFESTO
 
-- If it builds you, take it.  
+- If it ethically builds you, take it.  
 - If it’s free and online, collect it.  
 - If it costs and you’re ready, invest.  
 - If it seems “pointless” to others, that’s your green light.  
