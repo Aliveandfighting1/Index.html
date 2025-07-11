@@ -11,7 +11,7 @@ A rare individual doesn't wait to be approved. They don't delay progress until s
 
 ## The Outdoor Mandate
 
-Train in something that roots you to the real world. A hiking class, fishing, primitive fire-starting, rappelling, rafting, map-reading—**the woods and wild remind us we're alive** in a world trying to make us passive, soft, disconnected. Don’t do it for a job. **Do it because it reanimates your human instincts.**
+Train in something that roots you to the real world. Scuba and/or Skydiving, primitive fire-starting, rappelling, rafting, map-reading—**nature and the wild remind us we're alive if approached skillfully** in a world trying to make us passive, soft, disconnected. Don’t do it for a job. **Do it because it reanimates your human instincts.** Find soemthing useful that you'd continue to do more of. Be unlike the mundane and media-moulded friends/family sitting around speaking of doing things. Actually do something! 
 
 > *“Rare is the one who trains even when there’s no battle on the calendar.”*
 
@@ -19,15 +19,15 @@ Train in something that roots you to the real world. A hiking class, fishing, pr
 
 ## Cross-Training: The Anti-Pushover Strategy
 
-The world respects **titles**, but titles are brittle. Skills, on the other hand, make you **resilient and unpredictable**. When you are trained in multiple fields—medical, mechanical, legal, security, emotional—you stop fearing the so-called experts. You become one.
+The world respects **titles**, but titles are brittle. Skills, on the other hand, make you **resilient and unpredictable**. When you are trained in multiple fields—medical, vocational/tech, legal, security, emotional/social—you stop fearing the so-called experts. You become one.
 
-**Certify in what they mocked. Train in what they ignore. And one day, you’ll surpass the ones who only knew one trade.**
+**Certify in what they mocked. Train in what they ignore. And one day, you’ll surpass the ones who only knew their one or two trades.**
 
 This isn’t about being better than others. It’s about **being immune to collapse**. When one career dries up or fails you, **you pivot**, because you invested in your ability to survive and adapt.
 
 ---
 
-## 🛠️ RARE CERTIFICATION MANIFESTO
+## 🛠️ RARE CERTIFICATIONS MANIFESTO
 
 - If it ethically builds you, take it.  
 - If it’s free and online, collect it.  
