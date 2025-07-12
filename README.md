@@ -39,7 +39,7 @@ This repository is maintained by **Michael Austin Collins** (aka Aliveandfightin
 ---
 
 # ORIGINALITY PROOF: The Rarity Model Philosophy  
-**Author: Col. Michael Austin Collins-J.M.**  
+**Author: Ky Col. Michael Austin Collins-J.M.**  
 **Founder of The Rarity Model Philosophy**
 
 ---
